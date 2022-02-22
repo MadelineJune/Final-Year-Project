@@ -1,7 +1,7 @@
 # Final-Year-Project
 
 
-Final year project is a critical a part of your course. It could be tough especially for those with a lack of path. Given the situation of beginners, maximum are normally careworn about the complete manner of studies. But, charting out your complete research plan can be of severe assist, specifically if you have never accomplished a challenge or research paper before. With a proper plan, carrying out your research can be one of the most productive and pleasant stories of the course.
+[Final year project](https://assignmentdude.com/do-my-final-year-project-computer-science/) is a critical a part of your course. It could be tough especially for those with a lack of path. Given the situation of beginners, maximum are normally careworn about the complete manner of studies. But, charting out your complete research plan can be of severe assist, specifically if you have never accomplished a challenge or research paper before. With a proper plan, carrying out your research can be one of the most productive and pleasant stories of the course.
 
 ## Choosing Your Project Topic based on your majors:
 
@@ -26,9 +26,10 @@ Suppose, if you are preparing a hardware or software projects and you are lackin
 ## Implementation
 
 This is the body of your mission in which your actual execution takes region. Pretty frequently, students are shaken up during this stage. make sure that you execute plans properly so that your undertaking is well built. be aware of each detail and try to minimize the errors and be assured in what you do. There may be some trials and mistakes in the beginning but make certain you do not give up.
-Abstract
 
-Abstract plays and important role in the entire thesis. It is a paragraph which briefs out your objective, methodology, findings and conclusion of your project. Use precise words which are simple to understand as it is the first thing a person reads from your report to glance the overview of the project. There are don’ts you need to follow [avoid all these] :
+## Abstract
+
+[Abstract](https://writingcenter.gmu.edu/) plays and important role in the entire thesis. It is a paragraph which briefs out your objective, methodology, findings and conclusion of your project. Use precise words which are simple to understand as it is the first thing a person reads from your report to glance the overview of the project. There are don’ts you need to follow [avoid all these] :
 
 **Abbreviations**
 

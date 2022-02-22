@@ -30,29 +30,29 @@ Abstract
 
 Abstract plays and important role in the entire thesis. It is a paragraph which briefs out your objective, methodology, findings and conclusion of your project. Use precise words which are simple to understand as it is the first thing a person reads from your report to glance the overview of the project. There are don’ts you need to follow [avoid all these] :
 
-**Abbreviations
+**Abbreviations**
 
-**Abstracts should be relatively short, and no need to write a lot of words
+**Abstracts should be relatively short, and no need to write a lot of words**
 
-**Images, illustration figures, tables
+**Images, illustration figures, tables**
 
-**Incomplete sentences
+**Incomplete sentences**
 
-**Jargon
+**Jargon**
 
-**Abstracts must be brief
+**Abstracts must be brief**
 
-**Add New information
+**Add New information**
 
-**Phrases like "current research shows" or "studies confirm"
+**Phrases like "current research shows" or "studies confirm"**
 
-**References
+**References**
 
-**Slang
+**Slang**
 
-**Terms that readers might find confusing
+**Terms that readers might find confusing**
 
-**Details that are unnecessary and are not relevant to the overall purpose of the abstract
+**Details that are unnecessary and are not relevant to the overall purpose of the abstract**
 
 ## Testing
 

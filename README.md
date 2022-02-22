@@ -13,7 +13,7 @@ Conducting a thorough literature overview is more than vital right here. It no l
 
 ## Developing Your Project Proposal
 
-Your undertaking proposal will determine whether it'll get authorised or now not seeing that it'll define what your task intends to perform and the way feasible it's far. It should encompass the specific objectives as well as the expected effects of the proposed venture. The thought must be capable of convincing the reviewer that the undertaking is really worth the time, money and effort required to complete the work. Spend sufficient time for your concept and paintings for your convincing competencies before the presentation. make sure you are organized for every query that is shot your way.
+Your undertaking [proposal](https://www.uow.edu.au/student/learning-co-op/assessments/project-proposal/#:~:text=A%20project%20proposal%20is%20a,questions%20surrounding%20a%20major%20project.&text=A%20project%20proposal%20at%20university,ultimate%20feasibility%20of%20the%20project.) will determine whether it'll get authorised or now not seeing that it'll define what your task intends to perform and the way feasible it's far. It should encompass the specific objectives as well as the expected effects of the proposed venture. The thought must be capable of convincing the reviewer that the undertaking is really worth the time, money and effort required to complete the work. Spend sufficient time for your concept and paintings for your convincing competencies before the presentation. make sure you are organized for every query that is shot your way.
 
 ## Planning Your Project
 
